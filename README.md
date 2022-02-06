@@ -1,1 +1,0 @@
-# ecology.github.io
